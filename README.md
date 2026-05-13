@@ -1,5 +1,3 @@
-# Season 51 Schedule
-
 Week 1: 
 - Thursday May 21st 7:30 PM at the Pittsburgh Pinball Dojo - 2 N Balph Ave, Bellevue, PA 15202 
 - Friday May 22nd at 7:30 PM at Helicon Brewing - 102 Union Ave, Oakdale, PA 15071 
